@@ -1,1 +1,1 @@
-# frizty.sc
+# rvsinvestsk.github.io
